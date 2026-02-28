@@ -154,4 +154,4 @@ Para informações institucionais ou estratégicas, entre em contato através do
 
 ---
 
-© Globalintelligency
+© Brevya LTDA | https://brevya.com.br/
